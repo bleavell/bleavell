@@ -9,7 +9,7 @@ Previously I worked in Dr. Jesse Barber's lab at Boise State University studying
 When I'm not sciencing, I'm usually playing with my daughter, or my dogs, or more likely both. I also love to hike, fish, and bike.
 
 - 📊 researchgate: https://www.researchgate.net/profile/Brian-Leavell
-- 🐦 twitter: @brian_leavell http://twitter.com/brian_leavell
+- 🐦 twitter: [@brian_leavell](http://twitter.com/brian_leavell)
 - 😄 Pronouns: he/him
 
 ![Panamá](https://bernal-lab.weebly.com/uploads/1/1/7/7/117757025/20170507-221334.jpg)
