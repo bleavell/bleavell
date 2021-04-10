@@ -12,7 +12,7 @@ When I'm not sciencing, I'm usually playing with my daughter, or my dogs, or mor
 - 🐦 twitter: @brian_leavell http://twitter.com/brian_leavell
 - 😄 Pronouns: he/him
 
-(https://bernal-lab.weebly.com/uploads/1/1/7/7/117757025/20170507-221334.jpg)
+![Panamá](https://bernal-lab.weebly.com/uploads/1/1/7/7/117757025/20170507-221334.jpg)
 
 <!--
 **bleavell/bleavell** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
