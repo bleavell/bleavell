@@ -6,7 +6,7 @@ I am fascinated by animal behavior but am particularly interested in how organis
 
 When I'm not sciencing, I'm usually playing with my daughter, or my dogs, or more likely both. I also love to hike, fish, and bike.
 
-- [my website](http://www.brianleavell.com)
+- my website: http://www.brianleavell.com
 - 📊 researchgate: https://www.researchgate.net/profile/Brian-Leavell
 - 🐦 twitter: [@brian_leavell](http://twitter.com/brian_leavell)
 - 😄 Pronouns: he/him
